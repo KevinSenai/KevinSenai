@@ -2,9 +2,9 @@
 
 👨‍💻 Homem, 19 anos
 
-🎓 Estudante do 3º ano do Ensino Médio
+🎓 Ensino Medio Completo
 
-💼 Jovem Aprendiz na Schwanke
+💼 Jovem Aprendiz na FioTubos
 
 💻 Atualmente cursando Desenvolvimento de Sistemas pelo SENAI
 
